@@ -1,4 +1,4 @@
-# =LOVE – 青春"サブリミナル" (＝LOVE 7th ANNIVERSARY PREMIUM CONCERT)
+# =LOVE – 青春"サブリミナル" (＝LOVE アリーナツアー2024)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
